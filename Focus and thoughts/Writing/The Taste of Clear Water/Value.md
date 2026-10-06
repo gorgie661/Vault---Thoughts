@@ -1,0 +1,1 @@
+Value: The monetary worth, usefulness, or importance of something, 

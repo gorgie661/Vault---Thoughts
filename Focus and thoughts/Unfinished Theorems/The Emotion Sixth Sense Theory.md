@@ -1,0 +1,2 @@
+
+If we analyze the [[The Free Will Theory]] we realize that our thoughts are dictated by the environment, but what about our feelings. Our feelings are dictated in a manor closely resembling [[The Universal Subconsciouse Theory]]

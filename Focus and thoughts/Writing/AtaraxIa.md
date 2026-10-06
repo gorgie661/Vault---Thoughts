@@ -1,0 +1,26 @@
+
+### Info   
+Eleuwan - country 
+Lucilius - senecas letters about suffering in imagination more than in reality.  Proto name 
+Epictetus - Some things are in our control and others not - could be the name of his wife or one of his victims or the officer who confronts him.
+Protagoras - (The Relativity of Perception axiom) 
+Ataraxia - The Pyrrhonist Skeptics argued that because our perceptions are unreliable, we should suspend judgment about the external world. By relinquishing the desire to control or know absolute external truths, one achieves ataraxia(unshakable tranquility).
+
+### Outline 
+Lives in a utopian society pro gets a brain injury and believes the government has lied and is controlling people through nano bots 
+Proto tries to free people by inflicting the same head injury on them. He gets chased by the government and hunted but evades capture. He tries to free many people but they all die, he suspects it’s a particular head injury so he starts kidnapping people and operating on them (lobotomizimg them essentially cuz he doesn’t know what he’s doing) he’s filled with grief and emotion because of all the lives he’s taken by trying to free people but he continues because he is driven to take out the government. His emotions start affecting him. He starts feeling emotions that he doesn’t think he should be feeling. He kills one of the agents and feels guilt instead of pride or resolve. (This is because his subconscious understands he is wrong) This starts to weigh on him and he starts to question his emotions. Thinking the government might still be affecting him. He decides that the only option to free everyone is to detonate a nuclear bomb and kill everyone to free them. He infiltrates a government site and is ready to launch the nuke before the launch room is raided by the feds. He threatens to launch the nuke and they try and convince him that the brain injury is what caused him to see these things and that the reality he thought was fake isn’t. His emotions start to invade his mind and he starts to spiral. Before finally seeing the truth that the officers are right. He kills himself because he cannot live with the guilt. His limb body falls on the launch controls and the nuke launches and destroys the country. 
+Dark cynical gritty style of writin
+  
+### Themes 
+(belief and perception, the structure of the mind, the limits of the human body) 
+[[The Personal Validation Theory]], [[The Perception Alteration Theorem]]
+  
+### Writing 
+Eleuwan, the pride of humanity, the perfect utopian society. Long ago the quarrels of humanity all but became extinct, replaced instead only by beautiful progressive progress. The outcome of that progress was the unification of the world into one perfect society. The scientific directive, once plagued with the advancement of weapons, now focused solely on the advancement of humanity. No more disease, hunger, violence, just a perfect beautiful society. There were laws of course, humans are far too irregular to be left to their own devices, and a government, a perfect democratic government. Eleuwan was, by all means, the pinnacle of humanity. 
+
+Lucilius awoke, it was 5 minutes past 3 in the morning, an ungodly hour to wake. Lucile looked around confused before becoming aware of a particular discomfort in the lower of his trunk. Sleepily, he wormed his way from the warm embrace of his slumber and sauntered to the bathroom to relieve himself. It was 10 minutes past 3 when he returned, dreary eyed but satisfied. Delicately, as to not disturb the beauty occupying the opposite of his bed, Lucilius crawled into bed, the warm embrace of his covers comforting his weary self as he drearily drifted into dreamy delirium. Lucilius can only be described as a dreamer, a man often fully engulfed in the magnificent of his thoughts. Tonight was no different, for tonight Lucilius dreamt the most fantastic dreams. 
+
+Lucilius awoke to the harsh rays of sunlight streaking in through the cracks in his curtains, bathing the room in a soft golden glow as if it were some great empire expanding its reach to every corner of the world,  in this moment, Lucilius’ bright bedroom was his world. Lucilius lay there for a time, watching the light flicker and flame, just as quickly as that great empire of light instilled its presents; it was gone, replaced by the dull glow of the morning as the sun rose above its bounds. For a brief moment there was beauty. Lucilius sighed as he exited the warm comfort of his bed. He made his way down to the kitchen to fulfill the hunger in the depths of his body. His wife was waiting there, sitting at the table beautiful as always, to the left the breakfast bot was whipping up some marvelous concoction full of flavor and substance. Lucilius walked to his wife, kissing her lovingly on the cheek before sitting down adjacent. The breakfast bot finished its task, hovering over to the table, plates of marvelous food in its grasps. Lucilius ate, quenching the ravenous hunger he always awoke too, no matter how much he ate he always seemed to be hungry. He finished his plate, kissed his wife once more, before making his way back to his room to dress.
+
+  
+**

@@ -1,0 +1,1 @@
+Purpose: Having clear goals, a sense of direction, and things you care about striving for.

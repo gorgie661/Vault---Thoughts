@@ -1,0 +1,1 @@
+Olaf is the outgoing and friendly snowman from Frozen. the theory is that to have a truly beautiful optimist outlook on life you should analyze Olaf and the beautiful way he sees and approaches life. that should be the underlying foundation for which you build your new self upon.
